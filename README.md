@@ -1,2 +1,0 @@
-# portfolio
-MIU student
